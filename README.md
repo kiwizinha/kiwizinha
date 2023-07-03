@@ -7,5 +7,4 @@ _meu nome é Kiwizinha_
 - Esse espeço da minha organização e compartilhamento dos meus projetos desenvolvidos.
 
 
- ![](https://media.tenor.com/xMlizpCewWAAAAAM/anya-sleeping-spy-x-family.gif)
- 
+ ![](https://media.tenor.com/y7autlggPdYAAAAM/carrossel-maria-joaquina.gif)
